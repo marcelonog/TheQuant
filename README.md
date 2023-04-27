@@ -1,1 +1,1 @@
-# TheQuant
+# Sunday - The Quant
