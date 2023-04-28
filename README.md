@@ -1,2 +1,2 @@
 # Sunday - The Quant
-Pendiente dia 8
+Pendiente dia 9
